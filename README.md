@@ -1,5 +1,5 @@
 # In the realm where codes ignite,
-I am [Your Name], a luminary of light.
+I am Rakesh Puli, a luminary of light.
 With passion fierce, I embark on this quest,
 Blending innovation and dreams, I am truly blessed.
 
